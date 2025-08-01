@@ -30,3 +30,15 @@ Advised the students to stay updated with the emerging tech and start building t
 Shared the inspiring college memories with us and motivated us for the future.
 # Mr.Ashok Singla(Finance Officer)
 Provided the insights on educational loans,financial planning,and how to avail government schemes.
+# Day 2
+# 9:30am to 10:30am
+English Proficiency Test was held.
+# 10:30am to 11:30am
+Maths Proficiency Test was held.
+# 1:00pm to 2:00pm
+About the Scholarship was discussed by the Buddy4Study Satya Scholarship Program and this lecture was very purposefull for eveyone.
+# 2:00pm to 3:00pm
+# Dr.Arashdeep Singh
+Gave a lecture on "Food: Pivotal role in Student's Overall Wellness".
+
+
