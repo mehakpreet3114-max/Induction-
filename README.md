@@ -1,1 +1,32 @@
 # Induction-
+# Day 1
+# 8:30am to 9:30am
+We visited the Gurudwara Sahib. I am particularly touched by the peaceful atmosphere of Gurudwara Sahib visit.
+# 9:30am to 10:00am
+We had refreshments.
+# From 10:00am onwards
+The Student Induction Programme Started -
+# Mr.Harsimran Singh(Host & Speaker)
+Welcomed the students and introduced them to the college rules, environment and infrastructure of college.
+# Mr.Singam Arora(Topper of CSE of Batch 2021-2025)
+He is working at argusoft as the software engineer.He shared how GNDEC shaped his future and emphasized developing the skills and staying focused in advance.
+# Mr.Arshpreet Singh(Alumni of IT Branch)
+He is working at the Airtel as the automation Engineer. He spoke about the coding, consistency towards work and about the internships.
+# Dr.Harpreet Kaur Grewal(HOD of Applied Science)
+Gave us the motivational speech and shared the roadmap of success-
+Growth 📈 -
+Passion, Patience, Persistence, Preservence, Prayer and Placement.
+# Dr.Sehijpal Singh(Principal)
+Spoke about the legacy and the values of the college and encouraging the students to stay motivated.
+# Dr.Parminder Singh
+Encouraged the students to remin positive,active and focused throughout the academic life.
+# Dr.Akshay(Dean of Management & Technical Studies)
+Talked about the managing the discipline,time and preparing for the competitive future in advance.
+# Mr.Ravinder Garg(Chief Engineer, Firld officer at Municipal Corporation Ludhiana)
+Highlighted the role of engineers in today's time and the importance of responsibility.
+# Dr.K.S.Maan(HOD of IT, Incharge of Cultural Activities)
+Advised the students to stay updated with the emerging tech and start building the skills in advance.
+# Mr.Rakesh Kumar(Alumni of 1991 Batch in Electronics Branch)
+Shared the inspiring college memories with us and motivated us for the future.
+# Mr.Ashok Singla(Finance Officer)
+Provided the insights on educational loans,financial planning,and how to avail government schemes.
