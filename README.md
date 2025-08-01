@@ -27,10 +27,10 @@ Passion, Patience, Persistence, Preservence, Prayer and Placement.
 # Dr.Sehijpal Singh(Principal)
 Spoke about the legacy and the values of the college and encouraging the students to stay motivated.
 # Dr.Parminder Singh
-Encouraged the students to remin positive,active and focused throughout the academic life.
+Encouraged the students to remain positive,active and focused throughout the academic life.
 # Dr.Akshay(Dean of Management & Technical Studies)
 Talked about the managing the discipline,time and preparing for the competitive future in advance.
-# Mr.Ravinder Garg(Chief Engineer, Firld officer at Municipal Corporation Ludhiana)
+# Mr.Ravinder Garg(Chief Engineer, Field officer at Municipal Corporation Ludhiana)
 Highlighted the role of engineers in today's time and the importance of responsibility.
 # Dr.K.S.Maan(HOD of IT, Incharge of Cultural Activities)
 Advised the students to stay updated with the emerging tech and start building the skills in advance.
