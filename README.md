@@ -1,4 +1,12 @@
 # Induction-
+# Name - Mehakpreet Kaur 
+# Father's Name - Harinderjeet Singh
+# Branch - Computer Science and Engineering 
+# Registration No. - 25101610
+# Mobile Number - 6283213114
+# Email - mehakpreet3114@gmail.com 
+# Photograph - 
+
 # Day 1
 # 8:30am to 9:30am
 We visited the Gurudwara Sahib. I am particularly touched by the peaceful atmosphere of Gurudwara Sahib visit.
