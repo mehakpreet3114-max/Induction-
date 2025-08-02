@@ -44,7 +44,7 @@ English Proficiency Test was held.
 # 10:30am to 11:30am
 Maths Proficiency Test was held.
 # 1:00pm to 2:00pm
-About the Scholarship was discussed by the Buddy4Study Satya Scholarship Program and this lecture was very purposefull for eveyone.
+About the Scholarship was discussed by the Buddy4Study Satya Scholarship Program and this lecture was very helpful for eveyone.
 # 2:00pm to 3:00pm
 # Dr.Arashdeep Singh
 Gave a lecture on "Food: Pivotal role in Student's Overall Wellness".
