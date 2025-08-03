@@ -47,6 +47,13 @@ Maths Proficiency Test was held.
 About the Scholarship was discussed by the Buddy4Study Satya Scholarship Program and this lecture was very helpful for eveyone.
 # 2:00pm to 3:00pm
 # Dr.Arashdeep Singh
-Gave a lecture on "Food: Pivotal role in Student's Overall Wellness".
+Gave a lecture on "Food: Pivotal role in Student's Overall Wellness".Eat a good diet helps to reduce the stress.
+# Day 3
+# 9:00am to 11:00am
+# Dr.Jaswinder Singh(Incharge IAPT)
+Explains the amazing tricks of Mathematics and Science.Also Explains that everything is Maths Without Maths their is nothing.
+# 11:00am to 1:00pm
+# Dr.Priya Darshni Mam
+Lecture on the "Universal Human Values".Which was very helpful to know about the goal.
 
 
