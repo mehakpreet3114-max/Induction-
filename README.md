@@ -30,7 +30,7 @@ Spoke about the legacy and the values of the college and encouraging the student
 Encouraged the students to remain positive,active and focused throughout the academic life.
 # Dr.Akshay(Dean of Management & Technical Studies)
 Talked about the managing the discipline,time and preparing for the competitive future in advance.
-# Mr.Ravinder Garg(Chief Engineer, Field officer at Municipal Corporation Ludhiana)
+# Mr.Ravinder Garg(Chief guest of Honor: Chief Engineer at Municipal Corporation,Ludhiana)
 Highlighted the role of engineers in today's time and the importance of responsibility.
 # Dr.K.S.Maan(HOD of IT, Incharge of Cultural Activities)
 Advised the students to stay updated with the emerging tech and start building the skills in advance.
@@ -49,11 +49,13 @@ About the Scholarship was discussed by the Buddy4Study Satya Scholarship Program
 # Dr.Arashdeep Singh
 Gave a lecture on "Food: Pivotal role in Student's Overall Wellness".Eat a good diet helps to reduce the stress.
 # Day 3
-# 9:00am to 11:00am
+# 9:00am to 11:15am
 # Dr.Jaswinder Singh(Incharge IAPT)
-Explains the amazing tricks of Mathematics and Science.Also Explains that everything is Maths Without Maths their is nothing.
-# 11:00am to 1:00pm
+Brought the Maths and Physics to life through fun.Explains that everything is with Maths Without maths their is nothing.
+# S.Gurcharan Singh Grewal(Secretary - SGPC)
+Encouraged the Students with their motivating words.
+# 11:15am to 1:30pm
 # Dr.Priya Darshni Mam
-Lecture on the "Universal Human Values".Which was very helpful to know about the goal.
+Lecture on the "Universal Human Values".Which was very helpful to know about the goal.Enriching young minds of the students with clarity and purpose.
 
 
