@@ -63,5 +63,14 @@ Lecture on the "Universal Human Values".Which was very helpful to know about the
 It was our First Lecture of Chemistry by Mam.Mam had explained all the core concepts of Chemistry Which was very useful and Essential to know.
 # 10:30am to 11:30am
 # P2P Lecture
-P2P Lecture was by our seniors.They Explained the syntax of C++ Programming language and explained the core concepts of C++ language.
+P2P Lecture was by our seniors.They Explained the syntax of C++ Programming language and explained the core concepts of C++ language.Making learning collaborative and engaging.
+# 11:30am to 12:30pm
+Break
+# 12:30pm to 2:30pm
+# Dr.Priya Darshni Mam
+Lecture was on the "Universal Human Values-2".Mam had guided us towards a more conscious and value based life.Mam had also talked about the Right Understanding, Physical Facility and Relationship etc.
+# 2:30pm to 3:30pm 
+# Session by Causmic Club
+About the Causmic Club Discussed by our seniors. The Team showcased their leadership, creativity etc.It was very helpful for us as freshers to know about each and every club to become the member of these clubs.
+# Day 5
 
