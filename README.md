@@ -7,7 +7,7 @@
 # Email - 
 # Photograph - 
 
-# Day 1
+# Day 1(31-07-2025)
 # 8:30am to 9:30am
 We visited the Gurudwara Sahib. I am particularly touched by the peaceful atmosphere of Gurudwara Sahib visit.
 # 9:30am to 10:00am
@@ -38,7 +38,7 @@ Advised the students to stay updated with the emerging tech and start building t
 Shared the inspiring college memories with us and motivated us for the future.
 # Mr.Ashok Singla(Finance Officer)
 Provided the insights on educational loans,financial planning,and how to avail government schemes.
-# Day 2
+# Day 2(01-08-2025)
 # 9:30am to 10:30am
 English Proficiency Test was held.
 # 10:30am to 11:30am
@@ -48,7 +48,7 @@ About the Scholarship was discussed by the Buddy4Study Satya Scholarship Program
 # 2:00pm to 3:00pm
 # Dr.Arashdeep Singh
 Gave a lecture on "Food: Pivotal role in Student's Overall Wellness".Eat a good diet helps to reduce the stress.
-# Day 3
+# Day 3(02-08-2025)
 # 9:00am to 11:15am
 # Dr.Jaswinder Singh(Incharge IAPT)
 Brought the Maths and Physics to life through fun.Explains that everything is with Maths Without maths their is nothing.
