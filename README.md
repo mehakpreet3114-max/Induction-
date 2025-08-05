@@ -57,5 +57,11 @@ Encouraged the Students with their motivating words.
 # 11:15am to 1:30pm
 # Dr.Priya Darshni Mam
 Lecture on the "Universal Human Values".Which was very helpful to know about the goal.Enriching young minds of the students with clarity and purpose.
-
+# Day 4
+# 9:30am to 10:30am
+# Prof.Mandeep Kaur(Chemistry Lecture)
+It was our First Lecture of Chemistry by Mam.Mam had explained all the core concepts of Chemistry Which was very useful and Essential to know.
+# 10:30am to 11:30am
+# P2P Lecture
+P2P Lecture was by our seniors.They Explained the syntax of C++ Programming language and explained the core concepts of C++ language.
 
