@@ -73,4 +73,12 @@ Lecture was on the "Universal Human Values-2".Mam had guided us towards a more c
 # Session by Causmic Club
 About the Causmic Club Discussed by our seniors. The Team showcased their leadership, creativity etc.It was very helpful for us as freshers to know about each and every club to become the member of these clubs.
 # Day 5
-
+# 9:30am to 10:30am
+# Prof.Manjot Kaur
+It was our First English Lecture.In this lecture mam discussed with us the syllabus and the marking scheme of Professional English Communication subject.We also gave our introductions in this lecture.
+# 10:30am to 11:30am
+# Prof.Harpreet Kaur(EE)
+It was our BEEE lecture.In this lecture we discussed about the syllabus and the marking scheme of this subject.Mam had discussed with us the core concepts of this subject and this subject is in CSE Branch,What is the role of this subject in CSE branch.
+# 11:30am to 12:30pm
+# Prof.Gagandeep Kaur 
+It was the Mathematicse lecture taken by the mam.Mam discussed with us the etiquettes,etc.
