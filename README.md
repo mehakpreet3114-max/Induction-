@@ -96,5 +96,6 @@ Break
 Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had explained about the education of the college and its importance.
 # 2:30pm to 4:00pm
 # Dr.Lakhvir Singh Khana(Incharge of CML)
+Sir had told us about the importance of Swayam.Sir also discussed with us the importance of NICPET exams in furure and encouraged the students to join it.
 
 
