@@ -82,3 +82,15 @@ It was our BEEE lecture.In this lecture we discussed about the syllabus and the 
 # 11:30am to 12:30pm
 # Prof.Gagandeep Kaur 
 It was the Mathematicse lecture taken by the mam.Mam discussed with us the etiquettes,etc.
+# Day 6
+# 9:30am to 10:30am
+# P2P Lecture
+P2P lecture was conducted by our seniors.They taught us C++ Programming Language.The Basic Syntax, Operators,Variables etc Topics were taught in the class.
+# 10:30am to 11:30am
+# Prof.Jaswant Singh 
+Sir discussed with us about the  Coding,Why we chose CSE Branch etc and sir explained his own Journey as a student in GNDEC.
+# 11:30am to 12:30pm
+Break
+# 1:30pm to 
+# S.Gurcharan Singh Grewal(Secretary - SGPC)
+Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had explained about the education of the college.
