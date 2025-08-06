@@ -91,6 +91,10 @@ P2P lecture was conducted by our seniors.They taught us C++ Programming Language
 Sir discussed with us about the  Coding,Why we chose CSE Branch etc and sir explained his own Journey as a student in GNDEC.
 # 11:30am to 12:30pm
 Break
-# 1:30pm to 
+# 1:30pm to 2:30pm
 # S.Gurcharan Singh Grewal(Secretary - SGPC)
-Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had explained about the education of the college.
+Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had explained about the education of the college and its importance.
+# 2:30pm to 4:00pm
+# Dr.Lakhvir Singh Khana(Incharge of CML)
+
+
