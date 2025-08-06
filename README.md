@@ -93,9 +93,9 @@ Sir discussed with us about the  Coding,Why we chose CSE Branch etc and sir expl
 Break
 # 1:30pm to 2:30pm
 # S.Gurcharan Singh Grewal(Secretary - SGPC)
-Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had explained about the education of the college and its importance.
+Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had also explained about the education of the college and its importance.
 # 2:30pm to 4:00pm
 # Dr.Lakhvir Singh Khana(Incharge of CML)
-Sir had told us about the importance of Swayam.Sir also discussed with us the importance of NICPET exams in furure and encouraged the students to join it.
+Sir had told us about the importance of Swayam.Sir also discussed with us the importance of NPTEL exams in future and encouraged the students to join it.
 
 
