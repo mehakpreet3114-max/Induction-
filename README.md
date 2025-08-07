@@ -97,5 +97,19 @@ Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had al
 # 2:30pm to 4:00pm
 # Dr.Lakhvir Singh Khana(Incharge of CML)
 Sir had told us about the importance of Swayam.Sir also discussed with us the importance of NPTEL exams in future and encouraged the students to join it.
+# Day 6
+# 9:30am to 10:30am
+# Dr.Parminder Singh(Dean-Student Welfare)
+Sir had explained all the infrastructure of college.Sir told About the dispensary,hostel, college campus etc.Which was very helpful for the freshers to know about the college.
+# 10:30am to 11:30am
+# Amit Kamra(Incharge DMC)
+Sir explained about the college official Pages and how sir managed it since 2019.Sir gave us the assignment regarding make a video on college campus of about 2 to 3 minutes.
+# 11:30am to 12:30pm
+# Dr.Randhir Singh
+Sir gave us the lecture on the college exams marking schemes and explained about the mid semester exams.It was very helpful for the freshers to manage the studies with the extra curricular activities.
+# 12:30pm to 1:30pm
+Break 
+# 2:00pm to 3:00pm
+ID card Formation.
 
 
