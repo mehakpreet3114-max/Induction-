@@ -1,11 +1,10 @@
 # Induction-
-# Name - 
-# Father's Name - 
+# Name - Mehakpreet Kaur 
+# Father's Name - Harinderjeet Singh
 # Branch - Computer Science and Engineering 
-# Registration No. -
-# Mobile Number -
-# Email - 
-# Photograph - 
+# Registration No. - 25101610
+# Mobile Number - 6283213114
+# Email - mehakpreet3114@gmail.com
 
 # Day 1(31-07-2025)
 # 8:30am to 9:30am
