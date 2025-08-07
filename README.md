@@ -57,7 +57,7 @@ Encouraged the Students with their motivating words.
 # 11:15am to 1:30pm
 # Dr.Priya Darshni Mam
 Lecture on the "Universal Human Values".Which was very helpful to know about the goal.Enriching young minds of the students with clarity and purpose.
-# Day 4
+# Day 4(04-08-2025)
 # 9:30am to 10:30am
 # Prof.Mandeep Kaur(Chemistry Lecture)
 It was our First Lecture of Chemistry by Mam.Mam had explained all the core concepts of Chemistry Which was very useful and Essential to know.
@@ -72,7 +72,7 @@ Lecture was on the "Universal Human Values-2".Mam had guided us towards a more c
 # 2:30pm to 3:30pm 
 # Session by Causmic Club
 About the Causmic Club Discussed by our seniors. The Team showcased their leadership, creativity etc.It was very helpful for us as freshers to know about each and every club to become the member of these clubs.
-# Day 5
+# Day 5(05-08-2025)
 # 9:30am to 10:30am
 # Prof.Manjot Kaur
 It was our First English Lecture.In this lecture mam discussed with us the syllabus and the marking scheme of Professional English Communication subject.We also gave our introductions in this lecture.
@@ -82,7 +82,7 @@ It was our BEEE lecture.In this lecture we discussed about the syllabus and the 
 # 11:30am to 12:30pm
 # Prof.Gagandeep Kaur 
 It was the Mathematicse lecture taken by the mam.Mam discussed with us the etiquettes,etc.
-# Day 6
+# Day 6(06-08-2025)
 # 9:30am to 10:30am
 # P2P Lecture
 P2P lecture was conducted by our seniors.They taught us C++ Programming Language.The Basic Syntax, Operators,Variables etc Topics were taught in the class.
@@ -97,7 +97,7 @@ Sir had shared with us his own memories and journey of GNDEC Ludhiana.Sir had al
 # 2:30pm to 4:00pm
 # Dr.Lakhvir Singh Khana(Incharge of CML)
 Sir had told us about the importance of Swayam.Sir also discussed with us the importance of NPTEL exams in future and encouraged the students to join it.
-# Day 6
+# Day 7(07-08-2025)
 # 9:30am to 10:30am
 # Dr.Parminder Singh(Dean-Student Welfare)
 Sir had explained all the infrastructure of college.Sir told About the dispensary,hostel, college campus etc.Which was very helpful for the freshers to know about the college.
