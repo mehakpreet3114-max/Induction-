@@ -110,5 +110,14 @@ Sir gave us the lecture on the college exams marking schemes and explained about
 Break 
 # 2:00pm to 3:00pm
 ID card Formation.
+# Day 8(08-08-2025)
+# 9:00am to 10:30am
+# Prof.Harpreet Kaur(EE)
+It was our BEEE lecture by Harpreet mam.Mam explained each concept and started the first chapter DC Circuits.
+# 10:30am to 12:00noon
+# Prof.Karan Bhalla
+It was our Chemistry lecture by sir.Sir introduced the syllabus of chemistry and the Exam Pattern.Sir also explained the Basics of chemistry and the first chapter Water chemistry.
+
+
 
 
